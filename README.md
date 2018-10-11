@@ -1,0 +1,2 @@
+# prior_mike_tien_lee_midterm
+midterm assignment
